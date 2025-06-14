@@ -1,4 +1,4 @@
 # Chinaqinglin.github.io
 
-I love YXY
+I love ly
 我是青檩。
